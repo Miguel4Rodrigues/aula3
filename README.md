@@ -1,3 +1,4 @@
-# Git-class
-Files to be cloned for the class about git
-i can't 
+Tu és ganda bandidio
+Voute estragar isyto
+AAAAAAAAAAAAAAAAAAAAAHHHHHHHHHHHHHHHHHHHHH
+
